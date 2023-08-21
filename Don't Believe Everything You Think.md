@@ -4,3 +4,6 @@
 
 > it's not WHAT we are thinking about thatis causing us suffering, But THAT we are thinking.
 
+My analogy is imagine a car is in halt position but you forgot to switch off the engine.
+
+To the outer World it will seeing like car is stopped comma but the engine is still running and causing all the wear and tear same happens to our body when we go for sleep our body is at rest but thoughts are on and we don't feel relax
