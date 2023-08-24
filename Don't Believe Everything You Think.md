@@ -4,8 +4,16 @@
 
 > it's not WHAT we are thinking about thatis causing us suffering, But THAT we are thinking.
 ____________________
+## My analogy - 1 Relaxation
 
-
-### My analogy is imagine a car is in halt position but you forgot to switch off the engine.
-
+### is imagine a car is in halt position but you forgot to switch off the engine.
 ### To the outer World it will seem like car is stopped, but the engine is still running and causing all the wear and tear.same happens to our body when we go for sleep, and continue thinking, our body is at rest we don't feel relax.
+________________
+## ## My analogy - 2 Identifying the actual issue/problem
+### Imagine a Bike with a low Tyre Pressure and we are trying to improve the efficiency of it.
+### No matter how much research goes into this. without going actually to the Tyre pressure, efficiency can't be improved.
+### Same is the case with our general wellbeing, often the focus is elsewhere, at time we are overwhelmed with the information around that we are not able to think clearly.
+### A line of treatment talk about the problem but not the root cause, not to be disheartened this same line of thoughts are with many of us, we only need to identify and keep exploring.
+
+
+
